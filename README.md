@@ -5,7 +5,7 @@
 
 - 💬 Me Pergunte sobre **Sql, Power BI, Excel, Python, Moldelagens de dados**
 
-- 📫 Você me Acha através do E-mail**srenetadeu@gmail.com**
+- 📫 Você me Acha através do E-mail  **srenetadeu@gmail.com**
 
 - 📄Fundada Por Renê Tadeu e minhas habilidades estão [linkedin.com/in/rene-tadeu-da-silva-205489181](linkedin.com/in/rene-tadeu-da-silva-205489181)
 
